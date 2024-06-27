@@ -1,5 +1,3 @@
-# getitrecorded.com
-
 To our valued E-Recording Clients, we are no longer E-Recording. 
 
 If you have Process Serving needs or CA Secretary of State Filing needs, please go to:
